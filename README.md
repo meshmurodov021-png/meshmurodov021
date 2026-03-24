@@ -1,1 +1,1 @@
-### Hi, I'm Mahmydjon Eshmurodov <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2IxOWE5NXV4M3VlY3h1ODI5YmJjaHYwM280dWF1ZTZ4dWhzNmUzYiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/gM5qFksULw54NMWyry/giphy.gif" width= "30px">
+### Hi, I'm Mahmydjon Eshmurodov <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2IxOWE5NXV4M3VlY3h1ODI5YmJjaHYwM280dWF1ZTZ4dWhzNmUzYiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/gM5qFksULw54NMWyry/giphy.gif" width= "40px">
